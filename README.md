@@ -1,1 +1,0 @@
-# lovasa8.github.io
